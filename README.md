@@ -5,8 +5,8 @@
 - 👋 Hi, I’m @MHDSOUBANEH
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning C language
-- 💞️ I’m looking to collaborate with my class
-- 📫 How to reach me Impossible fellas
+- 💞️ I’m looking to collaborate to make money
+- 📫 How to reach me: Impossible fellas
 
 
 
